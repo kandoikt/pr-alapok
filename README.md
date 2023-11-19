@@ -1,1 +1,1 @@
-dhghfdhfdhfd# pr-alapok
+pr-alapok
